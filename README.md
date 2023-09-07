@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **mohdarshad8668@gmail.com**
 
-- 📄 Know about my experiences(FIBD MY RESUME HERE) [https://drive.google.com/file/d/1Y6t6L_O_1xRapZtVHRn67E4b8Tkuk10d/view?usp=sharing](https://drive.google.com/file/d/1Y6t6L_O_1xRapZtVHRn67E4b8Tkuk10d/view?usp=sharing)
+- 📄 Know about my experiences (FIND MY RESUME HERE) [https://drive.google.com/file/d/1Y6t6L_O_1xRapZtVHRn67E4b8Tkuk10d/view?usp=sharing](https://drive.google.com/file/d/1Y6t6L_O_1xRapZtVHRn67E4b8Tkuk10d/view?usp=sharing)
 
 - ⚡ Fun fact **I think Marvel creates crowd-pulling action-comedies, while DC produces mature flicks focused on audience preferences.**
 
